@@ -32,7 +32,7 @@
 28. Валерий Любимов 11 v.udav@bk.ru
 29. Вадим Матвеев 11, 13 fooontic@gmail.com vamatveev@yamoney.ru
 30. Роман Ганин 11, 18 realetive@yandex.ru
-31. Александр Кашкабаш 12
+31. Александр Кашкабаш 12 a.v.kashkabash@tinkoff.ru
 32. Дмитрий Шуранов 12
 33. Алексей Золотых 12 aazolotyh@gmail.com
 34. Екатерина Тарасова 13 Aniretake.tea@gmail.com
