@@ -47,5 +47,5 @@
 46. Анастасия Суховерхова sukhoverkhova.an@gmail.com
 47. Вячеслав Москаленко gucollu@gmail.com jason.rammoray@gmail.com sly24@ya.ru
 48. Миша Колосков mikhail@koloskov.kz
-49. Юлия Музафарова
+49. Юлия Музафарова shestakovauv@gmail.com
 50. Филипп Барановский
