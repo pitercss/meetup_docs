@@ -49,3 +49,6 @@
 48. Миша Колосков mikhail@koloskov.kz
 49. Юлия Музафарова shestakovauv@gmail.com
 50. Филипп Барановский
+51. Артур Кох Dudeonthehorse@gmail.com
+52. Николай Громов nicothin@gmail.com
+53. Филипп Рябчун talpa@yandex.ru
